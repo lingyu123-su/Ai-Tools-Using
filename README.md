@@ -17,7 +17,8 @@
 🏅 **丰厚奖励等你来拿！** 详情见下方👇  
 
 🎯 话不多说，咱们Discussion见！  
-🎉（这里插入一个GitHub Discussions界面截图）  
+🎉![image](https://github.com/user-attachments/assets/77b47f56-70ce-4ccb-9adc-34a8b2914ce2)
+
 
 ---
 
